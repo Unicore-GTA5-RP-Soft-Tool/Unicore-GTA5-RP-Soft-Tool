@@ -74,10 +74,6 @@ Unicore is an all-in-one enhancement platform created specifically for GTA5 RP p
 
 ---
 
-### 🔍 SEO Keywords
+## 🔎 SEO Keywords
 
-`gta5 rp soft`, `gta5 rp esp`, `gta5 roleplay tool`, `gta5 automation tool`,  
-`gta5 rp utility`, `gta5 radar overlay`, `unicore gta5`, `gta5 enhancement software`,  
-`gta5 gameplay booster`, `gta5 overlay tool`, `gta5 rp performance tool`, `gta5 smart radar`,  
-`gta5 soft for rp`, `gta5 mod interface`, `gta5 rp plugin`, `gta5 task automation`,  
-`gta5 visual overlay`, `gta5 roleplay enhancer`, `gta5 in-game tracker`, `gta5 rp interface toolkit`
+gta 5 rp, gta rp, gta roleplay, gta 5 roleplay, grand theft auto 5 rp, rp for gta 5, gta v rp, gta v roleplay, grand theft auto 5 roleplay, grand theft auto v roleplay, grand theft auto v rp, grand5rp, gta five roleplay, gta v ro, gta rp launcher, gta 5 rp modpack, gta 5 rp server, gta rp pc, gta v multiplayer rp, gta rp install guide, gta rp client, gta v custom rp, gta rp full setup, gta rp offline installer, gta rp windows version
